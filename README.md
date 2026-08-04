@@ -1,8 +1,10 @@
-border
+HUGE WIP
 
-image
+![](https://file.garden/aXF0ZO1cKApJSZJd/Untitled841_20260804165226.png)
 
-border
+![](https://file.garden/aXF0ZO1cKApJSZJd/Untitled840_Restored4_20260804165150.png)
+
+![](https://file.garden/aXF0ZO1cKApJSZJd/Untitled841_20260804165226.png)
 
 name
 
@@ -14,10 +16,10 @@ derse dreamer ‎ ༄ ‎ page of breath
 
 **<** john **3** **<** cherry **>**
 
-mlm trans
+![](https://file.garden/aXF0ZO1cKApJSZJd/IMG_7319.png) ![](https://file.garden/aXF0ZO1cKApJSZJd/IMG_7320.png)
 
-thing
+![](https://file.garden/aXF0ZO1cKApJSZJd/IMG_5094.gif)
 
-border
+![](https://file.garden/aXF0ZO1cKApJSZJd/Untitled841_20260804165226.png)
 
 lots of stamps
